@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Adnaev
+- 👀 I’m interested in playing Valorant and history
+- 🌱 I’m currently learning Kotlin (Android studio)
+- 📫 How to reach me: Telegram or any other massengers: @Adnaev
+- 😄 Pronouns: he / him 
